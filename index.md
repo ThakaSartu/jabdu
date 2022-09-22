@@ -1,3 +1,7 @@
+## Dear_Jabdu
+I like DBZ, IDK what your fav anime is but here is a nice episode... Yo momma may like it as well
+<iframe src="https://archive.org/embed/dragon-ball-z-ocean-productionswestwood-studios-dub-2000-2002" width="100%" height="480" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
 ---
 layout: default
 ---
